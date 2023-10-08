@@ -1,4 +1,4 @@
-Junior Fullstack Developer, Москва, 22 года
+Fullstack Developer, Москва, 22 года
 
 **Написать мне 👇**
 
